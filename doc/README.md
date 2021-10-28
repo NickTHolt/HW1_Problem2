@@ -1,1 +1,3 @@
 
+Murder most foul, as in the best it is;
+But this most foul, strange and unnatural.
